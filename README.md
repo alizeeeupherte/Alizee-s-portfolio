@@ -31,14 +31,3 @@ This represents my first two years of study in global design.
 
 
 
-### Skate Park
-
-Here you can discover my project related to X.
-Second year of architecture.
-
-
-
-
-### Housing
-Here you can discover my project related to X.
-Second year of architecture.
