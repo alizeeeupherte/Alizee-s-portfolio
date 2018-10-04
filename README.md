@@ -1,6 +1,5 @@
 # Alizée's portfolio
 
-/assets/img/logo3-1.png 
 
 ![](profil_picture.png?raw=true)
 
