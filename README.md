@@ -1,5 +1,7 @@
 # Alizée's portfolio
 
+/assets/img/logo3-1.png 
+
 ![](profil_picture.png?raw=true)
 
 My name is Alizée Eupherte, I'm 23 years old and I'm a master 1 at the National School of Architecture Paris Malaquais, Fine Arts.
