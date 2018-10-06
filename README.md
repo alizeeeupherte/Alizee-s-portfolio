@@ -25,7 +25,7 @@ Here you can discover my works related to [Professional-experiences](https://ali
 
 ### Global Arts
 
-Here you can go discover my experiences related to X.
+Here you can go discover my experiences related to [Global Arts](https://alizeeeupherte.github.io/Global-Arts/).
 This represents my first two years of study in global design.
 
 
