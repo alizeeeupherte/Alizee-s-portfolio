@@ -22,6 +22,11 @@ Here you can discover my works related to [Professional-experiences](https://ali
 
 
 
+### Interior design
+
+I had the opportunity to decorate a haussmannian flat. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
+
+
 
 ### Global Arts
 
@@ -31,9 +36,6 @@ This represents my first two years of study in global design.
 
 
 
-### Interior design
-
-I had the opportunity to decorate a haussmannian flat. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
 
 
 
