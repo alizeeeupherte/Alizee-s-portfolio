@@ -33,7 +33,7 @@ This represents my first two years of study in global design.
 
 ### Interior design
 
-I had the opportunity to decorate a haussmannian flat. Clic here to discover my [Interior Design] (https://alizeeeupherte.github.io/Interior-design-/) work.
+I had the opportunity to decorate a haussmannian flat. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
 
 
 
