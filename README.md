@@ -3,7 +3,7 @@
 
 ![](archi.png?raw=true)
 
-My name is Alizée Eupherte, I'm 23 years old and I'm a master 1 at the National School of Architecture Paris Malaquais, Fine Arts.
+My name is Alizée Eupherte, I'm a master 1 at the Beaux-Arts Paris Malaquais architecture school.
 Before that, I practiced global design for two years.
 Here you will see some of my school projects, personal or professional projects.
 
