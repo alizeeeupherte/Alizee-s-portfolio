@@ -4,34 +4,34 @@
 ![](archi.png?raw=true)
 
 My name is Alizée Eupherte, I'm a master 1 at the Beaux-Arts Paris Malaquais architecture school.
-Before that, I practiced global design for two years.
+Before that, I practiced global design for two years in Camondo, Paris.
 Here you will see some of my school projects, personal or professional projects.
 
 
 ### Les Puces
 
-Here you can discover my project related to [Les Puces](https://alizeeeupherte.github.io/Les_Puces/).
-Licence semester.
+Urban design multi program in [Les Puces](https://alizeeeupherte.github.io/Les_Puces/) de Saint Ouen.
+Bachelor semester.
 
 
 
 
 ### Professional experiences
 
-Here you can discover my works related to [Professional-experiences](https://alizeeeupherte.github.io/Professional-experiences/). 
+Here is my last professional experience as a model maker. 
+Explorations of materials for tenders: [Professional-experiences](https://alizeeeupherte.github.io/Professional-experiences/). 
 
 
 
 ### Interior design
 
-I had the opportunity to decorate a haussmannian flat. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
+I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
 
 
 
 ### Global Arts
 
-Here you can go discover my experiences related to [Global Arts](https://alizeeeupherte.github.io/Global-Arts/).
-This represents my first two years of study in global design.
+Some of my [Global Arts](https://alizeeeupherte.github.io/Global-Arts/) works during my first two years of study in global design.
 
 
 
