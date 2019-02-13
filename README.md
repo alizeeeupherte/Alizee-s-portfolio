@@ -9,9 +9,9 @@ Here you will see some of my school projects, personal or professional projects.
 
 
 
-### Housing
+### Housing.
 
-Think about tomorrow's [Housing](https://alizeeeupherte.github.io/Housing/).
+Think about tomorrow's [Housing.](https://alizeeeupherte.github.io/Housing./).
 Master.
 
 
