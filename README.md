@@ -8,10 +8,18 @@ Before that, I practiced global design for two years in Camondo, Paris.
 Here you will see some of my school projects, personal or professional projects.
 
 
-### Les Puces
 
-Urban design multi program in [Les Puces](https://alizeeeupherte.github.io/Les_Puces/) de Saint Ouen.
-Bachelor semester.
+### Housing
+
+Think about tomorrow's [Housing](https://alizeeeupherte.github.io/Housing/).
+Master.
+
+
+
+
+### Interior design
+
+I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
 
 
 
@@ -23,9 +31,12 @@ Explorations of materials for tenders: [Professional-experiences](https://alizee
 
 
 
-### Interior design
 
-I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
+### Les Puces
+
+Urban design multi program in [Les Puces](https://alizeeeupherte.github.io/Les_Puces/) de Saint Ouen.
+Bachelor semester.
+
 
 
 
