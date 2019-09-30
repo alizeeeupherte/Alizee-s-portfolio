@@ -27,7 +27,7 @@ I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to dis
 
 ### Professional experiences
 
-Today, I work half time with STUDIO HOXHA.
+Today, I work half time with [STUDIO HOXHA](https://github.com/alizeeeupherte/STUDIO-HOXHA/edit/master/README.md).
 
  
 I had the opportunity to follow the construction of the new ENS scientific school in Paris Saclay with the agency RPBW.
