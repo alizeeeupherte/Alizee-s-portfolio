@@ -3,7 +3,7 @@
 
 ![](archi.png?raw=true)
 
-My name is Alizée Eupherte, I'm a master 1 at the Beaux-Arts Paris Malaquais architecture school.
+My name is Alizée Eupherte, after my licence at the Beaux-Arts Paris Malaquais architecture school I moved to Ecole Spéciale d'Architecture on Raspail Boulevard to continue my master.
 Before that, I practiced global design for two years in Camondo, Paris.
 Here you will see some of my school projects, personal or professional projects.
 
@@ -26,9 +26,10 @@ I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to dis
 
 ### Professional experiences
 
-Here is my last professional experience as a model maker. 
-Explorations of materials for tenders: [Professional-experiences](https://alizeeeupherte.github.io/Professional-experiences/). 
+Here is my professional experience as a model maker at Jacques Ferrier Architecture office.
+This [Professional-experiences](https://alizeeeupherte.github.io/Professional-experiences/) was all about explorations of materials for tenders.
 
+Today, I work half time with STUDIO HOXHA.
 
 
 
