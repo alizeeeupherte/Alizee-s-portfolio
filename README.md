@@ -27,10 +27,15 @@ I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to dis
 
 ### Professional experiences
 
+Today, I work half time with STUDIO HOXHA.
+
+ 
+I had the opportunity to follow the construction of the new ENS scientific school in Paris Saclay with the agency RPBW.
+
+
 Here is my professional experience as a model maker at Jacques Ferrier Architecture office.
 This [Professional-experiences](https://alizeeeupherte.github.io/Professional-experiences/) was all about explorations of materials for tenders.
 
-Today, I work half time with STUDIO HOXHA.
 
 
 
