@@ -57,4 +57,9 @@ Some of my [Global Arts](https://alizeeeupherte.github.io/Global-Arts/) works du
 
 
 
+Any copies or uses of projects present on the site for personal or professional purposes are prohibited.
+
+
+
+
 
