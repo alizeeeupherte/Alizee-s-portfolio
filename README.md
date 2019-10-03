@@ -1,4 +1,4 @@
-# Alizée's portfolio
+# Alizee's portfolio
 
 
 ![](archi.png?raw=true)
