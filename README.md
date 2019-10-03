@@ -27,10 +27,10 @@ I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to dis
 
 ### Professional experiences
 
-Today, I work half time with [STUDIO HOXHA](https://github.com/alizeeeupherte/STUDIO-HOXHA/edit/master/README.md), a Parisian studio.
+Today, I work half time with [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio.
 
  
-I had the opportunity to follow the construction of the new ENS scientific school in Paris Saclay during 10 month with [RPBW](https://github.com/alizeeeupherte/RPBW/edit/master/README.md) agency.
+I had the opportunity to follow the construction of the new ENS scientific school in Paris Saclay during 10 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency.
 
 
 Here is my professional experience as a model maker at [Jacques-Ferrier-Architecture](https://alizeeeupherte.github.io/Jacques-Ferrier-Architecture/).
