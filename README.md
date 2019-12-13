@@ -13,7 +13,10 @@ Here you will see some of my school projects, personal or professional projects.
 ### Housing
 
 Think about tomorrow's [Housing.](https://alizeeeupherte.github.io/Housing./)
-Master.
+Master - 2019.
+
+Housing on a flood site 
+Master - 2019.
 
 
 
@@ -22,15 +25,22 @@ Master.
 
 I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
 
+Once upon a time in London where I decorate an apartment ...
+
+A cozy apartment where it's hot all year round: Barcelona.
+
 
 
 
 ### Professional experiences
 
-Today, I work half time with [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio.
+
+Recently, I worked half time next to school:
+with [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,
+with Occulus Architecture, London office.
 
  
-I had the opportunity to follow the construction of the new ENS scientific school in Paris Saclay during 10 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency.
+I had the opportunity to follow the construction of the new ENS scientific school in Paris Saclay during 8 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency.
 
 
 Here is my professional experience as a model maker at [Jacques-Ferrier-Architecture](https://alizeeeupherte.github.io/Jacques-Ferrier-Architecture/).
@@ -42,7 +52,7 @@ This professional experience  was all about explorations of materials for tender
 ### Les Puces
 
 Urban design multi program in [Les Puces](https://alizeeeupherte.github.io/Les_Puces/) de Saint Ouen.
-Bachelor semester.
+Bachelor semester - 2018.
 
 
 
