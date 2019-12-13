@@ -35,7 +35,7 @@ A cozy apartment where it's hot all year round: Barcelona.
 ### Professional experiences
 
 
-Recently, I worked next to school with:
+Recently, I worked next to school with:                                                                                        
 [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,                                                
 Occulus Architecture, London office.
 
