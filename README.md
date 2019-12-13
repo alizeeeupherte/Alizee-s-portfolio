@@ -24,7 +24,7 @@ I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to dis
 
 Once upon a time in [London](https://alizeeeupherte.github.io/London/) where I decorate an apartment ...
 
-A cozy apartment where it's hot all year round: [Barcelona](x).
+A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupherte.github.io/Barcelona/).
 
                                                                                                                                 
 ### Professional experiences
