@@ -32,7 +32,7 @@ A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupher
 
 Recently, I worked with:                                                                                        
 [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,                                                
-[Occulus-Architecture](https://alizeeeupherte.github.io/Occulus-Architecture/), London office.
+[Occulus-Architects](https://alizeeeupherte.github.io/Occulus-Architects/), London office.
 
  
 I had the opportunity to follow next to school the construction of the new ENS scientific school in Paris Saclay during 8 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency.
