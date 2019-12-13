@@ -15,7 +15,7 @@ Here you will see some of my school projects, personal or professional projects.
 Think about tomorrow's [Housing.](https://alizeeeupherte.github.io/Housing./)
 Master - 2019.
 
-Housing on a flood site 
+Housing on a flood site. 
 Master - 2019.
 
 
@@ -36,7 +36,7 @@ A cozy apartment where it's hot all year round: Barcelona.
 
 
 Recently, I worked next to school with:
-[STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,
+[STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,                                                
 Occulus Architecture, London office.
 
  
@@ -45,14 +45,6 @@ I had the opportunity to follow the construction of the new ENS scientific schoo
 
 Here is my professional experience as a model maker at [Jacques-Ferrier-Architecture](https://alizeeeupherte.github.io/Jacques-Ferrier-Architecture/).
 This professional experience  was all about explorations of materials for tenders.
-
-
-
-
-### Les Puces
-
-Urban design multi program in [Les Puces](https://alizeeeupherte.github.io/Les_Puces/) de Saint Ouen.
-Bachelor semester - 2018.
 
 
 
