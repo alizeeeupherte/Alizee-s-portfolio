@@ -32,7 +32,7 @@ A cozy apartment where it's hot all year round: Barcelona.
 
 Recently, I worked next to school with:                                                                                        
 [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,                                                
-Occulus Architecture, London office.
+[Occulus-Architecture](https://alizeeeupherte.github.io/Occulus-Architecture/), London office.
 
  
 I had the opportunity to follow next to school the construction of the new ENS scientific school in Paris Saclay during 8 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency.
