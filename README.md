@@ -30,7 +30,7 @@ A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupher
 ### Professional experiences
 
 
-Recently, I worked next to school with:                                                                                        
+Recently, I worked with:                                                                                        
 [STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,                                                
 [Occulus-Architecture](https://alizeeeupherte.github.io/Occulus-Architecture/), London office.
 
@@ -54,7 +54,7 @@ Some of my [Global Arts](https://alizeeeupherte.github.io/Global-Arts/) works du
 
 ##### Any copies or uses of projects present on the site for personal or professional purposes are prohibited.
 
-
+Alizée
 
 
 
