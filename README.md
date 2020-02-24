@@ -22,9 +22,9 @@ Transition from a business to a home, 3 rue Félix Faure, [Colombes](https://ali
 
 ### Interior design
 
-I had the opportunity to decorate a Haussmannian flat in Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) work.
+What to find in an Haussmannian flat, Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) spirit for this special place.
 
-Once upon a time in [London](https://alizeeeupherte.github.io/London/) where I decorate an apartment ...
+Once upon a time in [London](https://alizeeeupherte.github.io/London/) where I played with furniture.
 
 A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupherte.github.io/Barcelona/).
 
