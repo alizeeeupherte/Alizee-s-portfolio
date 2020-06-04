@@ -39,20 +39,20 @@ A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupher
 
 
 Recently, I worked with:                                                                                        
-[STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio,                                                
-[Occulus-Architects](https://alizeeeupherte.github.io/Occulus-Architects/), London office.
+[STUDIO HOXHA](https://alizeeeupherte.github.io/STUDIO-HOXHA/), a Parisian studio. - 2019.                                               
+[Occulus-Architects](https://alizeeeupherte.github.io/Occulus-Architects/), London office. - 2020.
 
  
-I had the opportunity to follow next to school the construction of the new ENS scientific school in Paris Saclay during 8 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency.
+I had the opportunity to follow next to school the construction of the new ENS scientific school in Paris Saclay during 8 month with [RPBW](https://alizeeeupherte.github.io/RPBW/) agency. - 2018/2019.
 
 
 Here is my professional experience as a model maker at [Jacques-Ferrier-Architecture](https://alizeeeupherte.github.io/Jacques-Ferrier-Architecture/).
-This professional experience  was all about explorations of materials for tenders.
+This professional experience  was all about explorations of materials for tenders. - 2017.
 
                                                                                                                                    
 ### Global Arts
 
-Some of my [Global Arts](https://alizeeeupherte.github.io/Global-Arts/) works during my first two years of study in global design.
+Some of my [Global Arts](https://alizeeeupherte.github.io/Global-Arts/) works during my first two years of study in global design. - 2014/2016.
 
 
 
