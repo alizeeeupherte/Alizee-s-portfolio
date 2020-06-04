@@ -3,7 +3,7 @@
 
 
 Hi! My name is Alizée Eupherte, after my licence at the Beaux-Arts Paris Malaquais architecture school I moved to Ecole Spéciale d'Architecture on Raspail Boulevard to continue my master.
-Before that, I practiced global design for two years in Camondo in Paris. 
+Before that, I practiced global design for two years in Camondo, Paris. 
 
 Here you will see some of my school projects, personal or professional projects.
                                                                                                                                                                                                                                                              
