@@ -7,7 +7,13 @@ Hi! My name is Alizée Eupherte, after my licence at the Beaux-Arts Paris Malaqu
 Before that, I practiced global design for two years in Camondo in Paris. 
 
 Here you will see some of my school projects, personal or professional projects.
-                                                                                                                                                                                                                                                              
+                                                                                                                                                                                                                                                             
+                                                                                                                                                                                                                                                            
+### Graduation project
+
+In 2020, I decided to work on XXX for my graduation project. Here you can see a bit of my Research paper [Research paper](https://alizeeeupherte.github.io/Research-paper/) or my [Final Project](https://alizeeeupherte.github.io/Final-Project/)
+
+
 
 ### Housing
 
