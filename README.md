@@ -11,7 +11,7 @@ Here you will see some of my school projects, personal or professional projects.
                                                                                                                                                                                                                                                             
 ### Graduation project
 
-In 2020, I decided to work on XXX for my graduation project. Here you can see a bit of my Research paper [Research paper](https://alizeeeupherte.github.io/Research-paper/) or my [Final Project](https://alizeeeupherte.github.io/Final-Project/)
+I had the opportunity to work on the issue of living by the river around a submersible territory. Here you can see a bit of my [Research paper](https://alizeeeupherte.github.io/Research-paper/) or my [Final Project](https://alizeeeupherte.github.io/Final-Project/)
 
 
 
