@@ -23,7 +23,7 @@ Master - 2019.
 [Housing](https://alizeeeupherte.github.io/Housing/) on a flood site. 
 Master - 2019.
 
-Transition from a business to a home, 3 rue Félix Faure, [Colombes](https://alizeeeupherte.github.io/Colombes/) 92700 - 2020.
+Feasibility study for a private project. Transition from a business to a home, 3 rue Félix Faure, [Colombes](https://alizeeeupherte.github.io/Colombes/) 92700 - 2020.
                                                                                                                                  
 
 ### Interior design
@@ -62,7 +62,7 @@ Some of my [Global Arts](https://alizeeeupherte.github.io/Global-Arts/) works du
 
 ##### Any copies or uses of projects present on the site for personal or professional purposes are prohibited.
 
-Alizée
+Alizée Eupherte
 
 
 
