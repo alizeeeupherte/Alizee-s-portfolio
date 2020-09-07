@@ -24,7 +24,7 @@ Here is my professional experience as a model maker at [Jacques-Ferrier-Architec
 This professional experience  was all about explorations of materials for tenders. - 2017.                                                                                                                                                                    
 
  
- ### Interior design
+### Interior design
 
 What to find in an Haussmannian flat, Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) spirit for this special place.
 
