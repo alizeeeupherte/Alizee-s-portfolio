@@ -21,17 +21,15 @@ I had the opportunity to follow next to school the construction of the new ENS s
 
 
 Here is my professional experience as a model maker at [Jacques-Ferrier-Architecture](https://alizeeeupherte.github.io/Jacques-Ferrier-Architecture/).
-This professional experience  was all about explorations of materials for tenders. - 2017.                                                                                                                                                                    
-
- 
-### Interior design
+This professional experience  was all about explorations of materials for tenders. - 2017.                                                                                      
 
 
-What to find in an Haussmannian flat, Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) spirit for this special place.
+### Graduation project
 
-Once upon a time in [London](https://alizeeeupherte.github.io/London/) where I played with furniture.
+I had the opportunity to work on the issue of living by the river around a submersible territory. 
+Here you can see a bit of my [Research paper](https://alizeeeupherte.github.io/Research-paper/) or my [Final Project](https://alizeeeupherte.github.io/Final-Project/). - 2020
 
-A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupherte.github.io/Barcelona/).
+
 
 
 
@@ -44,14 +42,20 @@ Think about tomorrow's [Housing.](https://alizeeeupherte.github.io/Housing./)
 Master - 2019.
 
 Feasibility study for a private project. Transition from a business to a home, 3 rue Félix Faure, [Colombes](https://alizeeeupherte.github.io/Colombes/) 92700 - 2020.
-                                                                                                                              
+
+
+
+### Interior design
+
+
+What to find in an Haussmannian flat, Paris. Clic here to discover my [Interior Design](https://alizeeeupherte.github.io/Interior-design-/) spirit for this special place.
+
+Once upon a time in [London](https://alizeeeupherte.github.io/London/) where I played with furniture.
+
+A cozy apartment where it's hot all year round: [Barcelona](https://alizeeeupherte.github.io/Barcelona/).
+
+                                                                                                                                                                                                                                                  
                                                                                                                                
-                                                                                                                                  
-### Graduation project
-
-I had the opportunity to work on the issue of living by the river around a submersible territory. 
-Here you can see a bit of my [Research paper](https://alizeeeupherte.github.io/Research-paper/) or my [Final Project](https://alizeeeupherte.github.io/Final-Project/). - 2020
-
 
                                                                                                                                    
 ### Global Arts
